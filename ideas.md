@@ -1,19 +1,15 @@
-Two eggplants watch a recipe for egplant parm, it's like a horror. First they are peeled "ooooh", then they are mandolined "not the mandolino!", then they are fried "why is that even necessary?" then baked "now the oven"  as the video finishes "wow what a terifying movie"
-
+-----------
 Wait does this recipe call for garlic?
 Knife
 Jerusalem artichoke: all Italian recipes call for garlic
 
-Garlic: it's not a movie it's a recipie
-
-Eggplant : wha- sliceced in half
 ---------
 
-A pomodorino goes off to fight in the war in ukraine, but is rejected (they only accept potatoe)
+A pomodorino goes off to fight in the war in ukraine, but is rejected (they only accept potatoes)
 
 ---------------
 
-a romance between a lemon and lime. the limes parents aren't happy, but when the lemon is cut up for limonata they proest they had nothing to do with it. "colore della mia buccia" (self righeous lemon). They really don't like the lemon because he's argumentative, bad personality. angry
+a romance between a lemon and lime. the lime's parents aren't happy, but when the lemon is cut up for limonata they proest they had nothing to do with it. "colore della mia buccia" (self righeous lemon). They really don't like the lemon because he's argumentative, bad personality. angry
 
 Buccia verde non ci serve
 
