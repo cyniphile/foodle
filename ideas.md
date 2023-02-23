@@ -1,3 +1,6 @@
+Now we can play of the tomatoes fear of currants
+
+---------
 A pomodorino goes off to fight in the war in ukraine, but is rejected (they only accept potatoes)
 
 -------
@@ -22,19 +25,20 @@ Parents, adesso no
 
 ------
 
-Currents look like mini tomatoes. "We're sour!" Clearly. The currants are like angry midgets that want equal rights "BERRIES ARE FRUITS TOO". get ground up into jam. "not so sour eh"  "frutti di bosco sono ancora FRUTTI" 
-
-Ribes, to a pomodorino: sei un frutto eh? Allora fai una marmellata! 
-
-They drop down on him covering him like quicksand. 
-
+ "BERRIES ARE FRUITS TOO". get ground up into jam. "not so sour eh"  "frutti di bosco sono ancora FRUTTI" 
 ---------
 
 Peach is a hot bitch with an instagram "her butt isn't even organic". Two weeks later: is all rotten and old. garlic I'm still fresh "my peel is still white, my odor mm still potent" (get's cut by knife and peeled.)
 
 --------------
 
-garlic is the strinky kid in class. 
+garlic is the stinky kid in class. 
+
+
+They become zombies from mold but they can't move so anticlimactic but then again no one can move so climactic 
+
+garlic saves them. 
+
 
 ----------
 
@@ -47,18 +51,17 @@ _____________
 
 Fancy vegetable dinner date where they drink fancy water. Dessert is a dish made from them. 
 
+Ora il doche
 
-He__________
+Thanks goodnedds what is it?
 
+Pie
 
-They become zombies from mold but they can't move so anticlimactic but then again no one can move so climactic 
+What kind of pie?
 
+Pie frutti di bosco mwahahaha
 
-________
-
-A vain Instagram potato grows an unseemly root on it's face
-
-______&
+______
 
 Jerusalem artichoke advises the others on how to live longer: be unpopular, stay out of recipes, he also gives the humans terrible gas if not cooked right
 
